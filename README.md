@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Crimson69X
+- 👀 I’m interested in coding
+- 🌱 I’m currently learning javascript
+- 💞️ I’m looking to collaborate on nothing
+- 📫 Discord: CrimsonGG#5062
